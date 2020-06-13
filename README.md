@@ -1,1 +1,1 @@
-# Calaxy
+# Calaxy Develoer Redkin Vadim
